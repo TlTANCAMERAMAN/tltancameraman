@@ -17,4 +17,4 @@ caleb & june gang4lyfe
 "are you seriously a skibidi toilet fan?"
 ....yes
 
-![.](https://i.imgflip.com/82t0ku.jpg)
+![.](https://http2.mlstatic.com/D_NQ_NP_695415-MLU73060796625_112023-O.webp)
