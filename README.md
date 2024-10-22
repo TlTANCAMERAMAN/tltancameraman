@@ -11,9 +11,7 @@ i LOVE LOVE LOVE my boyfriend so much <33
 caleb & june gang4lyfe
 
 
-**PLEASE DNI IF YOU JUST WANT TO HARASS ME FOR LIKING SKIBIDI TOILET.**
-**DOING SO IS JUST A WASTE OF TIME. JUST SPEND YOUR TIME DOING**
-**SOMETHING MEANINGFUL.**
+dni: basic dni criteria, *serious* skibidi toilet haters (u guys suck)/basically just harasses skibidi fans, supports/neutral proship/darkship, tcoaal/okegom fans
 
 
 "are you seriously a skibidi toilet fan?"
