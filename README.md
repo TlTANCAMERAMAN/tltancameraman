@@ -16,7 +16,8 @@ dni: basic dni criteria, *serious* skibidi toilet haters (u guys are no fun)/bas
 
 
 "are you seriously a skibidi toilet fan?"
-....yes
+....yes! my faves r: titan cameraman (a bit obvious), secret agent, g-toilet, camerawoman, juggernaut astro toilet & mothership astro toilet!! 
+g-toilet x tcm shippers int ;-; i want my toxic yaoi /jjjjj 
 
 "oughhh... i dont feel so g
 ![.](https://http2.mlstatic.com/D_NQ_NP_695415-MLU73060796625_112023-O.webp)
