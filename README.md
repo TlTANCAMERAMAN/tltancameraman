@@ -10,6 +10,7 @@ i LOVE LOVE LOVE my boyfriend so much <33
 
 caleb & june gang4lyfe
 
+u might see me in regis, i usually just claim titan cameraman (or base cameraman) :sob:
 
 dni: basic dni criteria, *serious* skibidi toilet haters (u guys are no fun)/basically just harasses skibidi fans, supports/neutral proship/darkship, tcoaal/okegom fans
 
