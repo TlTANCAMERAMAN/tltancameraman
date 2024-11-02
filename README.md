@@ -4,8 +4,7 @@ ME!!!!! YIN!!!
 no.1 titan cameraman fan
 
 
-ahmm check out my rentry --> https://rentry.co/utcm and pronouns page --> https://en.pronouns.page/@titancameraman dont rlly use strawpage anymore to avoid some stuff ^_^
-
+ahmm check out my rentry --> https://rentry.co/utcm and pronouns page --> https://en.pronouns.page/@titancameraman , sign my ata !! --> https://titancameraman.atabook.org/
 i LOVE LOVE LOVE my boyfriend so much <33
 
 caleb & june gang4lyfe
