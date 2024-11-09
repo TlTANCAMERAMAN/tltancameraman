@@ -30,4 +30,6 @@ int!!: uhh fans of anything else other than the above i've mentioned, i'm ok wit
 
 g-toilet x tcm shippers int ;-; i want my toxic yaoi /jjjjj 
 
-![.](https://tenor.com/view/titan-cameraman-astro-skibidi-toilet-sacrifice-cameraman-gif-6897726084962563254.gif)
+<p align="center">
+<img width="460" height="300" src="https://media.discordapp.net/attachments/1253539771133984909/1304785116228358234/Untitled278_20241109202953.png?ex=6730a755&is=672f55d5&hm=240ab575b66f1d72f9f25973455b0ac3799e2e8bf436fa531cae02f2add5dca2&=&format=webp&quality=lossless&width=437&height=437"
+</p>
