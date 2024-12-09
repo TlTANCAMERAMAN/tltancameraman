@@ -17,7 +17,7 @@ caleb & june gang4lyfe
   </p>
 
 
-dni: basic dni criteria, *serious* skibidi toilet haters (u guys are no fun)/basically just harasses skibidi fans, supports/neutral proship/darkship, tcoaal/okegom fans
+dni: basic dni criteria, *serious* skibidi toilet haters (u guys are no fun)/basically just harasses skibidi fans, proship/darkship (instablock/hide, sorry ^_^), tcoaal/okegom fans
 
 
 int!!: uhh fans of anything else other than the above i've mentioned, i'm ok with rp just ask me first!!
