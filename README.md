@@ -17,7 +17,7 @@ caleb & june gang4lyfe
   </p>
 
 
-dni: basic dni criteria, *serious* skibidi toilet haters (u guys are no fun)/basically just harasses skibidi fans, proship/darkship (instablock/hide, sorry ^_^), tcoaal/okegom fans
+dni: basic dni criteria, *serious* skibidi toilet haters (u guys are no fun)/basically just harasses skibidi fans, proship/darkship (instablock/hide, sorry ^_^), tcoaal fans
 
 
 int!!: uhh fans of anything else other than the above i've mentioned, i'm ok with rp just ask me first!!
@@ -30,8 +30,16 @@ int!!: uhh fans of anything else other than the above i've mentioned, i'm ok wit
 "are you **seriously** a skibidi toilet fan?"
 
 
-....yes! my faves r: titan cameraman (a bit obvious), secret agent, g-toilet, camerawoman, juggernaut astro toilet, duchess astro toilet, detainer astro toilet & mothership astro toilet!! ask me abt my ships
+....yes! my faves r: titan cameraman (a bit obvious), secret agent, g-toilet, camerawoman, juggernaut astro toilet, duchess astro toilet, detainer astro toilet & mothership astro toilet!! ask me abt my ships blelele
 
 <p align="center">
-<img width="460" height="300" src="https://media.discordapp.net/attachments/1253539771133984909/1304785116228358234/Untitled278_20241109202953.png?ex=6730a755&is=672f55d5&hm=240ab575b66f1d72f9f25973455b0ac3799e2e8bf436fa531cae02f2add5dca2&=&format=webp&quality=lossless&width=437&height=437"
+  ★────────────────★
+  </p>
+
+"do you have other fandoms?"
+HELL YEAH! my other fandoms r: dc, marvel, phighting!, regretevator, sprunki, dandy's world, ENA, pvz, dunmeshi, and alot more because i'm heavily multifandom
+i also multiship. see gif below LMAO
+
+<p align="center">
+<img width="460" height="300" src="https://file.garden/aI3DEbWBQUP6_ovz/makesweet-ivrcs2-ezgif.com-reverse.gif"
 </p>
